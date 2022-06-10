@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Pallab4586
 - 👀 I’m interested in Computer Science
-- 🌱 I’m currently learning Class X
+- 🌱 I’m currently learning Class XI
 - 💞️ I’m looking to learn as much i can
 - 📫 How to reach me Discord Swine Gamer#3329
 <!---
